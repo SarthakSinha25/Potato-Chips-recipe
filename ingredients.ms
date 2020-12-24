@@ -1,0 +1,1 @@
+Potatoes , Slicer , oil , spices
